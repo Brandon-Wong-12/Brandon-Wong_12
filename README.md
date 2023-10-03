@@ -1,2 +1,7 @@
-# Brandon-Wong_12
-for read me
+# About me
+
+- currently studying at SFU
+- more to be added soon
+
+
+
